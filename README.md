@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **nish.nsh00@gmail.com**
 
-- ⚡ Fun fact **My Bugs So Good, they call them features.😄**
+- ⚡ Fun fact **I love learning from People and their Experiences**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
